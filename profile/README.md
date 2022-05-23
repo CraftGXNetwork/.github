@@ -1,4 +1,4 @@
-## Hi there 👋
+## O melhor servidor da América Latina de Minecraft com Mods.
 
 <!--
 
